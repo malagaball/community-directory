@@ -13,4 +13,4 @@ It's very interesting for "The DeFi Hub of Polkadot" because it's a huge concept
 
 
 ## Fun facts and details about yourself
-I love working out so I always manage my time for running/swimming/football and etc. but after I started my journey in crypto space I could say that I addicted this information/technical detail of this technologies so I could not move myself from the seat to learn a potential projects. I need to warn myself if you need to have a chance to learn a new thing you need to work out again   :) 
+I love working out so I always manage my time for running/swimming/football and etc. but after I started my journey in crypto space I could say that I addicted this information/technical detail of this technologies so I could not move myself from the seat to learn a potential projects. I need to warn myself if you need to have a chance to learn a new thing you need to work out again     :) 
